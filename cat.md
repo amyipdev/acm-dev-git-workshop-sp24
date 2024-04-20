@@ -1,4 +1,4 @@
-![](https://media.tenor.com/X3MIBBH6ZgMAAAAi/doglookinghungryandsnacking-dog.gif)
+![](https://media.tenor.com/BizS5xQKfbcAAAAi/banana-cat-banana-cat-running.gif)
 
 ![](https://media.tenor.com/jy7KKCCqYWUAAAAC/angry-cat.gif)
 
